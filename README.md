@@ -18,7 +18,7 @@
 
 ~ I love space.
 
-~ I like rock music!! Mostly indie rock.
+~ I like music alot!! Mostly indie and alternative rock.
 
 ---
 
@@ -38,10 +38,7 @@
 
 ~ FNF (mostly mods, like the Dave and Bambi mods. I love the DnB mods.)
 
-~ BATIM
-
-
-There's more that I can't think of right now so they're not important.
+There's more I can't think of right now (they're not important)
 
 ---
 
@@ -56,10 +53,14 @@ There's more that I can't think of right now so they're not important.
 
 ~ Alfred's Playhouse fans
 
+~ Anti Xenogenders and/or Neopronouns
+
 #### Interact! (INT):
 ~ Object show fans
 
 ~ Friends of friends
+
+~ Xenogender and Neopronoun users
 
 ~ Anyone that likes the same things I do that don't fit my DNI!!
 
