@@ -14,31 +14,35 @@
 
 ~ I love emoticons and emojis and tend to use them a lot. (The one I use most is :3)
 
-~ I am very socially awkward and struggle with talking to most people unless they're a friend.
-
 ~ I love space.
 
 ~ I like music alot!! Mostly indie and alternative rock.
+
+~ Feel free to ask for my Discord
+
+###### [Pronouns.page](https://en.pronouns.page/@B0MBZAWAY)
 
 ---
 
 ### { My Interests!! }
 
-~ Object Shows
+~ Object Shows 
+
+~ Marvel (specifically Deadpool)
+
+~ Alternative Rock music
+
+~ FNF (Mostly mods like the Dave and Bambi mods)
+
+~ Bendy and the Ink Machine
 
 ~ Cuphead
 
-~ FNaF and DSaF
-
-~ DHMIS
-
-~ Space in general
+~ Wii Deleted You
 
 ~ Music in general
 
-~ FNF (mostly mods, like the Dave and Bambi mods. I love the DnB mods.)
-
-There's more I can't think of right now (they're not important)
+~ Space in general
 
 ---
 
