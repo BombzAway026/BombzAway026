@@ -18,9 +18,11 @@
 
 ~ I like music alot!! Mostly indie and alternative rock.
 
-~ Feel free to ask for my Discord
+~ I'm very socially awkward and struggle with talking to people.
 
-###### [Pronouns.page](https://en.pronouns.page/@B0MBZAWAY)
+~ Discord is B0MBZAWAY#8803
+
+###### [Pronouns.page](https://en.pronouns.page/@B0MBZAWAY) <- xenogenders and neopronouns are here
 
 ---
 
