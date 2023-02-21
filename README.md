@@ -34,6 +34,8 @@
 
 ~ Alternative Rock music
 
+~ Heathers (Musical)
+
 ~ FNF (Mostly mods like the Dave and Bambi mods)
 
 ~ Bendy and the Ink Machine
@@ -60,6 +62,8 @@
 ~ Alfred's Playhouse fans
 
 ~ Anti Xenogenders and/or Neopronouns
+
+~ Nickloon shippers
 
 #### Interact! (INT):
 ~ Object show fans
