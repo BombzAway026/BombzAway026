@@ -28,25 +28,23 @@
 
 ### { My Interests!! }
 
-~ Object Shows 
+~ ***Object Shows ★***
 
-~ Marvel (specifically Deadpool)
+~ ***Wii Deleted You ★***
 
-~ Alternative Rock music
+~ ***Um Jammer Lammy ★***
+
+~ Deadpool
+
+~ Indie and Alternative Rock music
+
+~ Eddsworld
 
 ~ Heathers (Musical)
 
-~ FNF (Mostly mods like the Dave and Bambi mods)
+~ Rick and Morty
 
-~ Bendy and the Ink Machine
-
-~ Cuphead
-
-~ Wii Deleted You
-
-~ Music in general
-
-~ Space in general
+~ Parappa the Rapper
 
 ---
 
