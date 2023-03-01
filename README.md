@@ -8,17 +8,21 @@
 
 ---
 
-### { Hi hi! I'm Solar, but also go by Bombz, [Winner](https://battlefordreamisland.fandom.com/wiki/Winner), or [Bone](https://animatedinanimatebattle.fandom.com/wiki/Bone) }
+### { Hi hi! I'm Solar, but also go by Bombz, [Winner](https://battlefordreamisland.fandom.com/wiki/Winner), [Bone](https://animatedinanimatebattle.fandom.com/wiki/Bone), or [Balloon](https://inanimateinsanity.fandom.com/wiki/Balloon)}
 
 <img src="https://media.tenor.com/YtcePLrOKWYAAAAi/stars-night.gif" alt="Stars Night Sticker - Stars Night Night Time Stickers"/>
 
-~ I love emoticons and emojis and tend to use them a lot. (The one I use most is :3)
+~ I love emoticons and emojis and tend to use them a lot.
 
 ~ I love space.
 
-~ I like music alot!! Mostly indie and alternative rock.
+~ I like music alot. Mostly indie and alternative rock.
+
+~ Bone (AIB) and Balloon (II) fictionkin.
 
 ~ I'm very socially awkward and struggle with talking to people.
+
+~ I don't like to deal with ships and would like to stay out of that stuff.
 
 ~ Discord is B0MBZAWAY#8803
 
@@ -37,6 +41,10 @@
 ~ Deadpool
 
 ~ Indie and Alternative Rock music
+
+~ Sparklecare Hospital
+
+~ Metal Family
 
 ~ Eddsworld
 
@@ -61,7 +69,18 @@
 
 ~ Anti Xenogenders and/or Neopronouns
 
-~ Nickloon shippers
+~ DSMP fans, stans, etc.
+
+~ Nickloon (Nickel x Balloon) shippers 
+
+#### Thin Ice:
+~ Countryballs and/or Countryhumans
+
+~ Under 13
+
+~ MHA/BNHA fans
+
+~ Bonoodle (Bone x Oodle) shippers
 
 #### Interact! (INT):
 ~ Object show fans
@@ -70,6 +89,6 @@
 
 ~ Xenogender and Neopronoun users
 
-~ Anyone that likes the same things I do that don't fit my DNI!!
+~ Anyone that likes the same things I do that don't fit my DNI
 
 ---
