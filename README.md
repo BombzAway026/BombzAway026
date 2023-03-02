@@ -8,7 +8,7 @@
 
 ---
 
-### { Hi hi! I'm Solar, but also go by Bombz, [Winner](https://battlefordreamisland.fandom.com/wiki/Winner), [Bone](https://animatedinanimatebattle.fandom.com/wiki/Bone), or [Balloon](https://inanimateinsanity.fandom.com/wiki/Balloon)}
+### { Hi hi! I'm Solar, but also go by Bombz, [Bone](https://animatedinanimatebattle.fandom.com/wiki/Bone), [Balloon](https://inanimateinsanity.fandom.com/wiki/Balloon), and [Profily](https://battlefordreamisland.fandom.com/wiki/Profily)}
 
 <img src="https://media.tenor.com/YtcePLrOKWYAAAAi/stars-night.gif" alt="Stars Night Sticker - Stars Night Night Time Stickers"/>
 
