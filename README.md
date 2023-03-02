@@ -18,7 +18,7 @@
 
 ~ I like music alot. Mostly indie and alternative rock.
 
-~ Bone (AIB) and Balloon (II) fictionkin.
+~ Bone (AIB), Balloon (II), and Profily (BFB) fictionkin.
 
 ~ I'm very socially awkward and struggle with talking to people.
 
