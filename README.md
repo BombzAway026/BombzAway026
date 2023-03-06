@@ -33,6 +33,7 @@
 ---
 
 ### { My Interests!! }
+###### (★ = If you mention these around me I will explode /pos /hj)
 
 ~ ***Object Shows ★***
 
@@ -40,13 +41,13 @@
 
 ~ ***Um Jammer Lammy ★***
 
+~ ***Metal Family ★***
+
 ~ Deadpool
 
 ~ Indie and Alternative Rock music
 
 ~ Sparklecare Hospital
-
-~ Metal Family
 
 ~ Eddsworld
 
