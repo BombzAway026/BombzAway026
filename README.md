@@ -18,6 +18,8 @@
 
 ~ I like music alot. Mostly indie and alternative rock.
 
+~ I mostly use **she/they/xe** pronouns and neopronouns (which are on my pronouns page)
+
 ~ Bone (AIB), Balloon (II), and Profily (BFB) fictionkin.
 
 ~ I'm very socially awkward and struggle with talking to people.
