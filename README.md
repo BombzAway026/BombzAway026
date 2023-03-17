@@ -74,14 +74,14 @@
 
 ~ DSMP fans, stans, etc.
 
-#### *VERY* Thin Ice:
+~ Nickloon (Nickel x Balloon) shippers (as a Balloon fictionkin, it makes me uncomfy)
+
+#### Thin Ice:
 ~ Countryballs and/or Countryhumans
 
 ~ Under 13
 
 ~ MHA/BNHA fans
-
-~ Nickloon (Nickel x Balloon) shippers
 
 ~ Bonoodle (Bone x Oodle) shippers
 
