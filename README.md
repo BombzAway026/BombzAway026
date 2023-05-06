@@ -6,7 +6,7 @@
 
 ---
 
-### { Hi hi! I'm Solar, but also go by Bombz, [Bone](https://animatedinanimatebattle.fandom.com/wiki/Bone), [Balloon](https://inanimateinsanity.fandom.com/wiki/Balloon), and [Profily](https://battlefordreamisland.fandom.com/wiki/Profily)}
+### { Hi hi! I'm Solar, but also go by Bombz, Solar, [Balloon](https://inanimateinsanity.fandom.com/wiki/Balloon), [Profily](https://battlefordreamisland.fandom.com/wiki/Profily), and/or [Banana](https://shovelwares-brain-game.fandom.com/wiki/The_Dancing_Banana)}
 
 ![](https://media.tenor.com/YtcePLrOKWYAAAAi/stars-night.gif)
 
@@ -33,11 +33,11 @@
 
 ~ ***Object Shows ★***
 
+~ ***Shovelware's Brain Game ★***
+
 ~ ***Wii Deleted You ★***
 
 ~ ***Um Jammer Lammy ★***
-
-~ ***Metal Family ★***
 
 ~ Deadpool
 
